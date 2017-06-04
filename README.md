@@ -5,8 +5,3 @@ MoreNew styff
 more cancer 
 i Wanna die soon 
 New styff 
-more cancer 
-i Wanna die soon 
-New styff 
-more cancer 
-i Wanna die soon 
